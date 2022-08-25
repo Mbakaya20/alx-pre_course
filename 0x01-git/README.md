@@ -1,1 +1,1 @@
-This is the beginning of the journey
+This is the beginning of the journey, so get ready!
